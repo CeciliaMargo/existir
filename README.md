@@ -2,7 +2,7 @@
 
 Un día lei un poema llamado “Escrito en tinta verde” de Octavio Paz, escribí una version propia llamada “Escrito en tinta negra”, mientras el primer título se enfoca en la descripción de los follajes naturales y bosques, mi version se enfocaba mas bien en la lenta desgracia del ser, tenia 13 años, mi primer melancólico poema.
 
- 14 años después de aferrarme ferozmente a mi versión apagada y triste, después de abrazar la nostalgia y la idea de un fatal y pronto final a mi existencia, me doy cuenta que he comenzado a materializar el primer titulo en mis días, en mis mañanas frescas y claras, en las tardes soleadas y calidas, he comenzado a cuidar el verde que en mi habita.
+14 años después de aferrarme ferozmente a mi versión apagada y triste, después de abrazar la nostalgia y la idea de un fatal y pronto final a mi existencia, me doy cuenta que he comenzado a materializar el primer titulo en mis días, en mis mañanas frescas y claras, en las tardes soleadas y calidas, he comenzado a cuidar el verde que en mi habita.
 
 Somos todos nosotros hormigas que construyen edificios y ciudades, un panal de abejas dedicado a producir, nos hemos vuelto relojes adictos al tiempo, me atrevo a decir que hemos perdido nuestra mas natural y pura esencia, la supervivencia humana dejo lo animal para los chiflados y atrevidos, a los descarriados,a los perdidos, consumimos más de lo que necesitamos, la comodidad es una prioridad absurda.
 
